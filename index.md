@@ -43,7 +43,7 @@ The highest mountain peak in Taipei, and doable in a day. It's a hike that lasts
       1. Take the MRT to JianTan Station
       2. There are bus stops along the side of the station (I forgot which side)
       3. Take the R5 bus to the YangMingShan bus terminal (Should be the last station)
-      4. Look for signs towards the Second Parking Lot. The visitor center should be near
+      4. Look for signs towards the Second Parking Lot. The visitor center should be near.
       5. Walk past the visitor center until you see a stone path. This is where the hiking trail begins.
 
 Be sure to leave the mountain before 6:30PM, the buses stop going to pick passengers up and you don't want to be stuck there. I think any bus down the mountain will do. I forget. You can always just ask ;P. Don't be afraid to ask for things in Taiwan! People are friendly and eager to help.

@@ -9,7 +9,7 @@
 
   2. Unlimited 3G
     - Can be purchased at any ChungHwa telecom.
-    - Ask for 3G 吃到飽.
+    - Ask for 3G 吃到飽 (all you can eat).
     - This was extremely helpful for navigating, translating, looking things up.
     - It was about $33 for a month for me, I'm not sure what the pricing is for less than a week.
 
@@ -17,7 +17,7 @@
     - It's hot as fuck in Taiwan, I recommend buying a small towel for wiping down sweat and some breezier clothes.
     - You can get towels from any convenience store (there are a shitton)
       - 7-eleven, hi-life, FamilyMart, etc.
-    - I recommend hitting up Uniqlo or MUJI for cute stuff and breezier clothes.
+    - Uniqlo or MUJI for cute stuff and breezier clothes.
 
 # Taipei Day Trips
 
@@ -43,7 +43,8 @@ The highest mountain peak in Taipei, and doable in a day. It's a hike that lasts
       1. Take the MRT to JianTan Station
       2. There are bus stops along the side of the station (I forgot which side)
       3. Take the R5 bus to the YangMingShan bus terminal (Should be the last station)
-      4. Look for signs towards the Second Parking Lot and walk past the visitor center until you see a stone path. This is where the hiking trail begins.
+      4. Look for signs towards the Second Parking Lot. The visitor center should be near
+      5. Walk past the visitor center until you see a stone path. This is where the hiking trail begins.
 
 Be sure to leave the mountain before 6:30PM, the buses stop going to pick passengers up and you don't want to be stuck there. I think any bus down the mountain will do. I forget. You can always just ask ;P. Don't be afraid to ask for things in Taiwan! People are friendly and eager to help.
 

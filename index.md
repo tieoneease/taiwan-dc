@@ -50,11 +50,15 @@ Be sure to leave the mountain before 6:30PM, the buses stop going to pick passen
 
 ## JiuFen and PingXi
 
-    Zzz
+    To be added
 
 ## Sun Moon Lake
 
 Taiwan's largest lake. It's a very pretty sapphire color and sunsets over the area are beautiful. You can ride your bike around the whole lake, too. I highly recommend the 小吃 in this area. They have some interesting ones like 雞翅包飯(Rice wrapped in Chicken Wing) and 掛包(Pork Buns). The handmade mochi from 陳記 is also amazing. We've tried most of the stalls, so let us know if you visit, we will send you which ones we think are best. The best eats are at ItaThao 伊達邵. We recommend ending your day there for dinner.
+
+## TamShui (淡水)
+
+    To be added
 
 # Taipei Food and Desserts
 

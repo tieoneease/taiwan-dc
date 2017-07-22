@@ -52,6 +52,9 @@ Be sure to leave the mountain before 6:30PM, the buses stop going to pick passen
 
     Zzz
 
+## Sun Moon Lake
+
+Taiwan's largest lake. It's a very pretty sapphire color and sunsets over the area are beautiful. You can ride your bike around the whole lake, too. I highly recommend the 小吃 in this area. They have some interesting ones like 雞翅包飯(Rice wrapped in Chicken Wing) and 掛包(Pork Buns). The handmade mochi from 陳記 is also amazing. We've tried most of the stalls, so let us know if you visit, we will send you which ones we think are best. The best eats are at ItaThao 伊達邵. We recommend ending your day there for dinner.
 
 # Taipei Food and Desserts
 
@@ -61,4 +64,36 @@ Of course this was going to be on the list. I recommend going to the one in SOGO
 
 ## Ice Monster (Shaved ice)
 
-Taiwan's hot af so cool off at night with Ice Monster! It's delicately shaved ice that's super fluffy and delicious. There's one in Taipei and it opens pretty late. I recommend getting the ice made with mango (Taiwan's mangos are the best). There are two types but I forgot which one is which but get the one that's more mango-ey (sorry that's all I got).
+Taiwan's hot af so cool off at night with [Ice Monster](http://www.ice-monster.com/)! It's delicately shaved ice that's super fluffy and delicious. There's one in Taipei and it opens pretty late. I recommend getting the ice made with mango (Taiwan's mangos are the best). There are two types but I forgot which one is which but get the one that's more mango-ey (sorry that's all I got).
+
+## SanHoYan
+
+Cute Taiwanese Cuisine! See [here](https://sflow00.wordpress.com/2015/04/11/sanhoyan-%E5%8F%81%E5%92%8C%E9%99%A2-restaurant-in-taipei/). It has cute buns with faces on it.
+  
+    To get there:
+      1. Take the MRT to ZhongXiao Fuxing station
+      2. Take exit 4
+      3. It's a short walk from exit 4 further away from the main roads (Google maps)
+
+## Shilin Night Market
+
+The most famous night market in Taiwan. You can get a variety of 小吃here. An easy strategy is to go where there are the most people.
+
+    We recommend:
+      - Fried Oyster Omelette
+        - This is one of the classic Taiwanese dishes
+        - Go down to the basement floor area of the night market
+        - Look for the seating area with a bunch of flustered asian boys in red aprons (Should be crowded)
+      - 車輪餅(cart wheel sandwich?)
+        - It's like a waffle sandwich with cream and fruits
+        - Will upload photos
+      - Ice cream rolls (One of our favorites)
+        - Ice cream rolled in rice paper(?) with almonds and cilantro 
+
+    If you're adventurous: 
+      - Stinky Tofu
+      - Pig's Blood
+
+    To get there:
+      1. Take the MRT to JianTan station
+      2. Take the exit towards Shilin Night market (it's right outside)

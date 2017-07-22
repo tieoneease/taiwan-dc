@@ -56,7 +56,7 @@ Be sure to leave the mountain before 6:30PM, the buses stop going to pick passen
 
 ## JiuFen and PingXi
 
-    To be added
+    To be added (Or come with us!)
 
 ## Sun Moon Lake
 

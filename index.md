@@ -46,6 +46,12 @@ The highest mountain peak in Taipei, and doable in a day. It's a hike that lasts
       4. Look for signs towards the Second Parking Lot. The visitor center should be near.
       5. Walk past the visitor center until you see a stone path. This is where the hiking trail begins.
 
+When you're done with your hike, go to ZhuZiHu for sure! There's a sea of flowers and some places for you to relax. You can also pay a small price ($1-$3) to pick some pretty flowers to take home! There are also some fancy dango desserts that you should try out.
+
+    To get there:
+      1. Look for bus stops on YangMingShan with Little 8 (小八) or Little 9 (小九)
+      2. Ask if it goes to ZhuZiHu
+
 Be sure to leave the mountain before 6:30PM, the buses stop going to pick passengers up and you don't want to be stuck there. I think any bus down the mountain will do. I forget. You can always just ask ;P. Don't be afraid to ask for things in Taiwan! People are friendly and eager to help.
 
 ## JiuFen and PingXi

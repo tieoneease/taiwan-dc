@@ -35,7 +35,7 @@ When you get to 阿義師, ask for a seat by the railing, you will get better vi
 
 There are two types of gondolas: regular and glass-bottom. The wait for the glass-bottom is usually much longer. We decided to pass.
 
-## Yangming Shan (Mt. Qixing)
+## Yangming Shan (Mt. Qixing) and ZhuZiHu
 
 The highest mountain peak in Taipei, and doable in a day. It's a hike that lasts about 1.5 hours, but it's totally worth it. You can see much of Taipei from the top of the mountain along with some...pools of sulfur? I'm not sure but it's cool. You are also walking in the clouds.
 
